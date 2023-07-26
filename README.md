@@ -10,7 +10,7 @@ DEC 2022 - JUNE 2023
 
 _Research Intern_
 
-Worked for the Quantum Machines Unit alongside Jason Twamley.
+Worked for the Quantum Machines Unit alongside Dr. Jason Twamley.
 
 **CEMEX: Building Materials Company**                         
 JULY 2023 - PRESENT
